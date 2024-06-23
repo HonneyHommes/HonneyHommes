@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @HonneyHommes
+- 👀 I’m interested in computers
+- 🌱 I’m currently learning cybersecurity
+- 💞️ I’m looking to collaborate on hacking
+- 📫 How to reach me - here
